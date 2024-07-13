@@ -12,11 +12,15 @@ After entering auditorium we waited for half an hour. Then our first speaker *MR
 felt like home in the college. She made our day.Then our respected principal *DR.SEHIJPAL SINGH* motivated us.
 Our first day was made so memorable.
 
+---
+
 ***DAY 2***
 
 Day 2 started with same excitement. After having breakfast we reached auditorium. our respected *DR. ARVIND DHINGRA*
 gave us precious lessons and called 11 students for ter game. After the game he told us to introduce ourselves.I was very nervous to speak infront of 500 students.But yeah, I did that.
 Then *DR.H.S. RAI *entered. Before his entrance I had no idea that I was going to grab this big oppurtunuty.he chose students to work with him. I thought and ran for grabbing such an oppurtunity.
+
+---
 
 ***DAY 3***
 
