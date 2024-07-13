@@ -26,6 +26,6 @@ Then *DR.H.S. RAI *entered. Before his entrance I had no idea that I was going t
 
 The next day we were having class. I was little bit late but reached on time. First we learnt great lessons in UHV class.Then we learnt about excel and chatgpt from our seniors.Then we met with sir and team members in english lab and learnt new things.
 
-**To be continued*
+**To be continued**......
 
 
