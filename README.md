@@ -21,7 +21,7 @@
 
 
 ## Blog Posts 
-[View my Blogs](my_experience/Post1.md)
+[View my Blogs](my_experience/post1.md)
 
 
 
