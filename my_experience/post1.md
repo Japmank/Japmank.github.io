@@ -50,6 +50,8 @@ After a break, we learnt to use CANVA app. we explored this app to make posters 
 
 then we entered CODE GNE. We attended the doubt session. It was really helpful. 
 
+***DAY 7***
+ Day 7 was also very good. First we went to stadium . We attended the lecture. After the break we went to english class. That was also tooo good. Then we attended CODE GNE workshop by one group. 
 ***HIGHLIGHTS OF GNE***
 
 - GNE is very old institutions with a Rich history
