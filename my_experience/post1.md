@@ -28,6 +28,33 @@ The next day we were having class. I was little bit late but reached on time. Fi
 
 ---
 
+***DAY 4***
+
+DAY 4 was not good at all as I was sick and absent in class. 
+
+***DAY 5***
+
+We started the day by gathering outside the IT department. The atmosphere was buzzing with excitement as we anticipated the day’s activities. Our professors then guided us to the hardware lab, where we were introduced to the core values and goals of the IT department.
+Understanding the Vision and Mission
+In the hardware lab, our professors elaborated on the vision and mission of the IT department. The vision is particularly inspiring: to train students from villages and transform them into professionals. This commitment to empowering rural students underscores the department’s dedication to inclusive education and social upliftment.
+
+***DAY 6***
+
+*Lecture of UHV*
+
+our first lecture of the day was on Universal Human Values. It means to live happy and content life. We explore how to live happy and be satisfied ik our life. 
+
+*Lecture of CANVA*
+
+After a break, we learnt to use CANVA app. we explored this app to make posters and all. It ws really fun  After this lecture there was our english test. we were surprised to see the test. 
+
+then we entered CODE GNE. We attended the doubt session. It was really helpful. 
+
+***HIGHLIGHTS OF GNE***
+
+- GNE is very old institutions with a Rich history
+- Active clubs and socities.
+- Supoortive staff
 
 
 **To be continued**......
